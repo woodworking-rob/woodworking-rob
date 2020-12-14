@@ -3,9 +3,9 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
+- 🔭 We provide Residential and commercial woodworking projects.
+- 🌱 I’m currently learning everything.
+- 👯 I’m looking to collaborate with other content creators.
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
@@ -22,7 +22,7 @@ Here are some ideas to get you started:
 - ?? I’m currently learning everything ??
 - ?? I’m looking to collaborate with other content creators
 - ?? 2020 Goals: Contribute more to Open Source projects
-- ? Fun fact: I love to listen jazz
+- ⚡ Fun fact: I love to listen jazz
 
 
 ### Connect with me:
