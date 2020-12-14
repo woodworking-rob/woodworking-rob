@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 
 
-### Hi there, I'm Robert Pina - aka Professional carpenter ??
+### Hi there, I'm Robert Pina - aka Professional carpenter 👋
 ## I'm own a professional woodworking carpenter, interested in cutting edge technology and coding.
 
 - ?? We provide Residential and commercial woodworking projects.
