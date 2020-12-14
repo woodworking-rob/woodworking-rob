@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 ## I'm own a professional woodworking carpenter, interested in cutting edge technology and coding.
 
 - 🔭 We provide Residential and commercial woodworking projects.
-- 🌱 I’m currently learning everything ??
+- 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 💬 2020 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love to listen jazz
