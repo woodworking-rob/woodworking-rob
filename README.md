@@ -49,7 +49,7 @@ Here are some ideas to get you started:
 ---
 
 ### 📺 Latest YouTube Videos
-➡️ [more videos...] (https://www.youtube.com/channel/UC_ZbjWiZQVpodGs4IdTFr4Q)
+➡️ [more videos...](https://www.youtube.com/channel/UC_ZbjWiZQVpodGs4IdTFr4Q)
 
 
 [website]: https://www.woodworkcenter.com
