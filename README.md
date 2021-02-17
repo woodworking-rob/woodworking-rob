@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Fine Furniture And How To Make It With Your Woodworking Tools](https://www.woodworkcenter.com/fine-furniture-and-how-to-make-it-with-your-woodworking-tools-3/)
 - [When It Comes To A Fountain Of Knowledge About Woodworking, This Is It](https://www.woodworkcenter.com/when-it-comes-to-a-fountain-of-knowledge-about-woodworking-this-is-it-2/)
 - [Woodworking Tips And Tricks That Anyone Can Use](https://www.woodworkcenter.com/woodworking-tips-and-tricks-that-anyone-can-use-4/)
 - [Woodworking Gift Ideas](https://www.woodworkcenter.com/woodworking-gift-ideas/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Top 67 Woodworking Blogs On The Web](https://www.woodworkcenter.com/top-67-woodworking-blogs-on-the-web/)
 - [Nice Woodwork Gift Ideas For Mom](https://www.woodworkcenter.com/nice-woodwork-gift-ideas-for-mom/)
 - [Best Woodwork Gift Ideas For Dad](https://www.woodworkcenter.com/best-woodwork-gift-ideas-for-dad/)
-- [New Woodwork Gift Ideas For Wife](https://www.woodworkcenter.com/new-woodwork-gift-ideas-for-wife/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
