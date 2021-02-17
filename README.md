@@ -42,9 +42,6 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Starting Your Own Woodworking Business At Home](https://www.woodworkcenter.com/starting-your-own-woodworking-business-at-home/)
-- [Here Is What You Need To Know About Woodworking](https://www.woodworkcenter.com/here-is-what-you-need-to-know-about-woodworking/)
-- [Good Solid Advice About Woodworking That Anyone Can Use](https://www.woodworkcenter.com/good-solid-advice-about-woodworking-that-anyone-can-use-4/)
 - [Woodworking Gift Ideas](https://www.woodworkcenter.com/woodworking-gift-ideas/)
 - [Woodworking Gift Ideas](https://www.youtube.com/watch?v=2yOkUEnHbnw)
 - [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2020/12/woodworking-gift-ideas_12.html)
@@ -52,6 +49,9 @@ Here are some ideas to get you started:
 - [Top 67 Woodworking Blogs On The Web](https://www.woodworkcenter.com/top-67-woodworking-blogs-on-the-web/)
 - [Nice Woodwork Gift Ideas For Mom](https://www.woodworkcenter.com/nice-woodwork-gift-ideas-for-mom/)
 - [Best Woodwork Gift Ideas For Dad](https://www.woodworkcenter.com/best-woodwork-gift-ideas-for-dad/)
+- [New Woodwork Gift Ideas For Wife](https://www.woodworkcenter.com/new-woodwork-gift-ideas-for-wife/)
+- [Perfect Woodwork Gift Ideas For Her](https://www.woodworkcenter.com/perfect-woodwork-gift-ideas-for-her/)
+- [Woodworking Plans For Kids – Excellent Ideas](https://www.woodworkcenter.com/woodworking-plans-for-kids/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
