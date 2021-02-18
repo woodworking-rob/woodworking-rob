@@ -42,6 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Working With Wood: What You Should Know](https://www.woodworkcenter.com/working-with-wood-what-you-should-know-2/)
+- [Woodworking Information That You Cannot Work Without](https://www.woodworkcenter.com/woodworking-information-that-you-cannot-work-without/)
 - [Here Is What You Need To Know About Woodworking](https://www.woodworkcenter.com/here-is-what-you-need-to-know-about-woodworking/)
 - [Simple Steps To Help You Better Understand Woodworking](https://www.woodworkcenter.com/simple-steps-to-help-you-better-understand-woodworking-2/)
 - [Fine Furniture And How To Make It With Your Woodworking Tools](https://www.woodworkcenter.com/fine-furniture-and-how-to-make-it-with-your-woodworking-tools-3/)
@@ -50,8 +52,6 @@ Here are some ideas to get you started:
 - [Woodworking Gift Ideas](https://www.woodworkcenter.com/woodworking-gift-ideas/)
 - [Woodworking Gift Ideas](https://www.youtube.com/watch?v=2yOkUEnHbnw)
 - [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2020/12/woodworking-gift-ideas_12.html)
-- [Wood Projects That Sell On Ebay – 5 Useful Tips](https://www.woodworkcenter.com/selling-woodworking-on-ebay/)
-- [Top 67 Woodworking Blogs On The Web](https://www.woodworkcenter.com/top-67-woodworking-blogs-on-the-web/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
