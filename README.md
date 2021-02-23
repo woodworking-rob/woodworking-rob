@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [What You Have Always Wanted To Know About Woodworking](https://www.woodworkcenter.com/what-you-have-always-wanted-to-know-about-woodworking-3/)
 - [Woodworking Tips That’ll Improve You Abilities Fast!](https://www.woodworkcenter.com/woodworking-tips-thatll-improve-you-abilities-fast-2/)
 - [Read The Best Tips And Tricks About Woodworking Your Peers Have To Offer](https://www.woodworkcenter.com/read-the-best-tips-and-tricks-about-woodworking-your-peers-have-to-offer-2/)
 - [What You Must Know About The Craft Of Woodworking](https://www.woodworkcenter.com/what-you-must-know-about-the-craft-of-woodworking-2/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Woodworking And How It Can Make Your Life Better](https://www.woodworkcenter.com/woodworking-and-how-it-can-make-your-life-better-7/)
 - [How To Put Your Workworking Skills To Practice](https://www.woodworkcenter.com/how-to-put-your-workworking-skills-to-practice-2/)
 - [The Best Woodworking Tips On The Internet](https://www.woodworkcenter.com/the-best-woodworking-tips-on-the-internet-2/)
-- [Woodwork: Here Is The Whole Truth You Need To Know](https://www.woodworkcenter.com/woodwork-here-is-the-whole-truth-you-need-to-know-2/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
