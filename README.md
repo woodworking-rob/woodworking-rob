@@ -42,8 +42,16 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Woodworking Gift Ideas](https://www.youtube.com/watch?v=2yOkUEnHbnw)
-- [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2020/12/woodworking-gift-ideas_12.html)
+- [Woodworking: What You Should Know About Working With Woods](https://www.woodworkcenter.com/woodworking-what-you-should-know-about-working-with-woods-3/)
+- [What You Have Always Wanted To Know About Woodworking](https://www.woodworkcenter.com/what-you-have-always-wanted-to-know-about-woodworking-3/)
+- [Woodworking Tips That’ll Improve You Abilities Fast!](https://www.woodworkcenter.com/woodworking-tips-thatll-improve-you-abilities-fast-2/)
+- [Read The Best Tips And Tricks About Woodworking Your Peers Have To Offer](https://www.woodworkcenter.com/read-the-best-tips-and-tricks-about-woodworking-your-peers-have-to-offer-2/)
+- [What You Must Know About The Craft Of Woodworking](https://www.woodworkcenter.com/what-you-must-know-about-the-craft-of-woodworking-2/)
+- [From A To Z, This Article Covers It All About Woodwork](https://www.woodworkcenter.com/from-a-to-z-this-article-covers-it-all-about-woodwork-3/)
+- [Great Advice For Having Fun With Woodworking](https://www.woodworkcenter.com/great-advice-for-having-fun-with-woodworking-2/)
+- [In A Hurry To Learn More Regarding Woodworking? These Tips Are For You](https://www.woodworkcenter.com/in-a-hurry-to-learn-more-regarding-woodworking-these-tips-are-for-you-3/)
+- [Woodworking And How It Can Make Your Life Better](https://www.woodworkcenter.com/woodworking-and-how-it-can-make-your-life-better-7/)
+- [How To Put Your Workworking Skills To Practice](https://www.woodworkcenter.com/how-to-put-your-workworking-skills-to-practice-2/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
