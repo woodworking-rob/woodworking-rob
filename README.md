@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [When It Comes To A Fountain Of Knowledge About Woodworking, This Is It](https://www.woodworkcenter.com/when-it-comes-to-a-fountain-of-knowledge-about-woodworking-this-is-it-3/)
 - [Excellent Tips For Woodworking: Improve Your Skills](https://www.woodworkcenter.com/excellent-tips-for-woodworking-improve-your-skills-7/)
 - [Seeking Knowledge About Woodworking? You Need To Read This Article!](https://www.woodworkcenter.com/seeking-knowledge-about-woodworking-you-need-to-read-this-article/)
 - [Top Woodworking Tips To Get Started In The Craft](https://www.woodworkcenter.com/top-woodworking-tips-to-get-started-in-the-craft-2/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [When You Need Ideas About Woodworking Fast, Read This](https://www.woodworkcenter.com/when-you-need-ideas-about-woodworking-fast-read-this-2/)
 - [Great Resources For Woodworking Project Plans And Designs](https://www.woodworkcenter.com/great-resources-for-woodworking-project-plans-and-designs-2/)
 - [Woodworking: What You Should Know About Working With Woods](https://www.woodworkcenter.com/woodworking-what-you-should-know-about-working-with-woods-3/)
-- [What You Have Always Wanted To Know About Woodworking](https://www.woodworkcenter.com/what-you-have-always-wanted-to-know-about-woodworking-3/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
