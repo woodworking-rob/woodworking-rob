@@ -42,16 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [How to Get Started in the Art of Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-the-art-of-woodworking/)
-- [Cool Woodworking Projects for Kids and Adults](https://www.woodworkcenter.com/cool-woodworking-projects-for-kids-and-adults/)
-- [Finding a Woodworking Guide For the Beginner](https://www.woodworkcenter.com/finding-a-woodworking-guide-for-the-beginner/)
-- [Woodwork Ideas Easy to Do](https://www.woodworkcenter.com/woodwork-ideas-easy-to-do/)
-- [Woodworking DIY Projects – The Easy Way To Make Your Own Tools](https://www.woodworkcenter.com/woodworking-diy-projects-the-easy-way-to-make-your-own-tools/)
-- [Woodworking Ideas For Beginners](https://www.woodworkcenter.com/woodworking-ideas-for-beginners/)
-- [How to Make a DIY Woodworking Project – Why You Should Do it and What You Can Learn](https://www.woodworkcenter.com/how-to-make-a-diy-woodworking-project-why-you-should-do-it-and-what-you-can-learn/)
-- [An Overview Of The Woodworking Tool Sets And Techniques](https://www.woodworkcenter.com/an-overview-of-the-woodworking-tool-sets-and-techniques/)
-- [How to Do Woodworking Joints – A Beginner’s Guide](https://www.woodworkcenter.com/how-to-do-woodworking-joints-a-beginners-guide/)
-- [Good Solid Advice About Woodworking That Anyone Can Use](https://www.woodworkcenter.com/good-solid-advice-about-woodworking-that-anyone-can-use-4/)
+- [Woodworking Gift Ideas](https://www.youtube.com/watch?v=2yOkUEnHbnw)
+- [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2020/12/woodworking-gift-ideas_12.html)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
