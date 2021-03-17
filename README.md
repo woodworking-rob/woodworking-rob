@@ -42,6 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Woodworking DIY Beginner’s Tips](https://www.woodworkcenter.com/woodworking-diy-beginners-tips/)
+- [Woodworking Decor And How To Make It](https://www.woodworkcenter.com/woodworking-decor-and-how-to-make-it/)
 - [Things to Consider When Building Your Amazing Woodworking Plans](https://www.woodworkcenter.com/things-to-consider-when-building-your-amazing-woodworking-plans/)
 - [Woodworking Ideas: DIY Crafts For Everyone](https://www.woodworkcenter.com/woodworking-ideas-diy-crafts-for-everyone/)
 - [How to Get Started in the Art of Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-the-art-of-woodworking/)
@@ -50,8 +52,6 @@ Here are some ideas to get you started:
 - [Woodwork Ideas Easy to Do](https://www.woodworkcenter.com/woodwork-ideas-easy-to-do/)
 - [Woodworking DIY Projects – The Easy Way To Make Your Own Tools](https://www.woodworkcenter.com/woodworking-diy-projects-the-easy-way-to-make-your-own-tools/)
 - [Woodworking Ideas For Beginners](https://www.woodworkcenter.com/woodworking-ideas-for-beginners/)
-- [How to Make a DIY Woodworking Project – Why You Should Do it and What You Can Learn](https://www.woodworkcenter.com/how-to-make-a-diy-woodworking-project-why-you-should-do-it-and-what-you-can-learn/)
-- [An Overview Of The Woodworking Tool Sets And Techniques](https://www.woodworkcenter.com/an-overview-of-the-woodworking-tool-sets-and-techniques/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
