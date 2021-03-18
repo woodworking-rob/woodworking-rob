@@ -42,6 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Small Woodworking Projects – How to Make Money by Selling Crafts](https://www.woodworkcenter.com/small-woodworking-projects-how-to-make-money-by-selling-crafts/)
+- [DIY Woodworking Projects For The Creative Beginner](https://www.woodworkcenter.com/diy-woodworking-projects-for-the-creative-beginner/)
 - [Woodworking DIY Beginner’s Tips](https://www.woodworkcenter.com/woodworking-diy-beginners-tips/)
 - [Woodworking Decor And How To Make It](https://www.woodworkcenter.com/woodworking-decor-and-how-to-make-it/)
 - [Things to Consider When Building Your Amazing Woodworking Plans](https://www.woodworkcenter.com/things-to-consider-when-building-your-amazing-woodworking-plans/)
@@ -50,8 +52,6 @@ Here are some ideas to get you started:
 - [Cool Woodworking Projects for Kids and Adults](https://www.woodworkcenter.com/cool-woodworking-projects-for-kids-and-adults/)
 - [Finding a Woodworking Guide For the Beginner](https://www.woodworkcenter.com/finding-a-woodworking-guide-for-the-beginner/)
 - [Woodwork Ideas Easy to Do](https://www.woodworkcenter.com/woodwork-ideas-easy-to-do/)
-- [Woodworking DIY Projects – The Easy Way To Make Your Own Tools](https://www.woodworkcenter.com/woodworking-diy-projects-the-easy-way-to-make-your-own-tools/)
-- [Woodworking Ideas For Beginners](https://www.woodworkcenter.com/woodworking-ideas-for-beginners/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
