@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Woodworking Projects For The Beginner: DIY Bench Plans](https://www.woodworkcenter.com/woodworking-projects-for-the-beginner-diy-bench-plans/)
 - [How to Find Easy Woodworking Ideas](https://www.woodworkcenter.com/how-to-find-easy-woodworking-ideas/)
 - [Why You Should Finish Your DIY Woodworking Projects](https://www.woodworkcenter.com/why-you-should-finish-your-diy-woodworking-projects/)
 - [Small Woodworking Projects – How to Make Money by Selling Crafts](https://www.woodworkcenter.com/small-woodworking-projects-how-to-make-money-by-selling-crafts/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Things to Consider When Building Your Amazing Woodworking Plans](https://www.woodworkcenter.com/things-to-consider-when-building-your-amazing-woodworking-plans/)
 - [Woodworking Ideas: DIY Crafts For Everyone](https://www.woodworkcenter.com/woodworking-ideas-diy-crafts-for-everyone/)
 - [How to Get Started in the Art of Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-the-art-of-woodworking/)
-- [Cool Woodworking Projects for Kids and Adults](https://www.woodworkcenter.com/cool-woodworking-projects-for-kids-and-adults/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
