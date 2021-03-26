@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Woodworking DIY Crafts – How To Get Started And What To Make](https://www.woodworkcenter.com/woodworking-diy-crafts-how-to-get-started-and-what-to-make/)
 - [Creative Woodworking Projects For the Newlywed](https://www.woodworkcenter.com/creative-woodworking-projects-for-the-newlywed/)
 - [Woodworking Techniques For Beginners](https://www.woodworkcenter.com/woodworking-techniques-for-beginners/)
 - [Learn Woodworking DIY by Getting Involved in Local Woodworking Organizations](https://www.woodworkcenter.com/learn-woodworking-diy-by-getting-involved-in-local-woodworking-organizations/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Where to Find DIY Woodworking Ideas](https://www.woodworkcenter.com/where-to-find-diy-woodworking-ideas/)
 - [Woodworking Projects – Learn From Professionals!](https://www.woodworkcenter.com/woodworking-projects-learn-from-professionals/)
 - [Beginner Woodworking Classes – A Good Idea?](https://www.woodworkcenter.com/beginner-woodworking-classes-a-good-idea/)
-- [Fun Woodwork For Kids](https://www.woodworkcenter.com/fun-woodwork-for-kids/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
