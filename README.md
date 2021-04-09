@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Fun Woodwork Projects For Kids](https://www.woodworkcenter.com/fun-woodwork-projects-for-kids/)
 - [Free Woodworking Plans – A Perfect Stop For Anyone Looking For Easy Woodworking Projects](https://www.woodworkcenter.com/free-woodworking-plans-a-perfect-stop-for-anyone-looking-for-easy-woodworking-projects/)
 - [Woodworking Projects For The Beginner](https://www.woodworkcenter.com/woodworking-projects-for-the-beginner/)
 - [Easy Woodworking Ideas – How to Quickly and Easily Build Your Own Tools and Projects](https://www.woodworkcenter.com/easy-woodworking-ideas-how-to-quickly-and-easily-build-your-own-tools-and-projects/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Woodworking Decor For A Beautiful Living Space](https://www.woodworkcenter.com/woodworking-decor-for-a-beautiful-living-space/)
 - [Amazing Woodworking Projects For the Woodworking Enthusiast](https://www.woodworkcenter.com/amazing-woodworking-projects-for-the-woodworking-enthusiast/)
 - [The Different Types Of Woodworking Ideas DIY Crafts To Choose From](https://www.woodworkcenter.com/the-different-types-of-woodworking-ideas-diy-crafts-to-choose-from/)
-- [Cool Woodwork Projects For All Skill Levels](https://www.woodworkcenter.com/cool-woodwork-projects-for-all-skill-levels/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
