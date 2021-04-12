@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Cool Woodworking Ideas For The Craftsman](https://www.woodworkcenter.com/cool-woodworking-ideas-for-the-craftsman/)
 - [Where to Find Woodworking Ideas Projects](https://www.woodworkcenter.com/where-to-find-woodworking-ideas-projects/)
 - [How to Choose Your Perfect Woodworking Crafts Ideas](https://www.woodworkcenter.com/how-to-choose-your-perfect-woodworking-crafts-ideas/)
 - [DIY Woodworking Ideas](https://www.woodworkcenter.com/diy-woodworking-ideas/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Free Woodworking Plans – A Perfect Stop For Anyone Looking For Easy Woodworking Projects](https://www.woodworkcenter.com/free-woodworking-plans-a-perfect-stop-for-anyone-looking-for-easy-woodworking-projects/)
 - [Woodworking Projects For The Beginner](https://www.woodworkcenter.com/woodworking-projects-for-the-beginner/)
 - [Easy Woodworking Ideas – How to Quickly and Easily Build Your Own Tools and Projects](https://www.woodworkcenter.com/easy-woodworking-ideas-how-to-quickly-and-easily-build-your-own-tools-and-projects/)
-- [Woodworking Projects – Easy DIY Wood Project Ideas](https://www.woodworkcenter.com/woodworking-projects-easy-diy-wood-project-ideas/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
