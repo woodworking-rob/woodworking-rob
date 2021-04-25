@@ -42,6 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [5 Types of Woodworking Gift Ideas](https://www.youtube.com/watch?v=nejUtmuqeVk)
+- [5 Types of Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/5-Types-of-Woodworking-Gift-Ideas.html)
 - [Easy Build Woodworking Projects For Beginners](https://www.woodworkcenter.com/easy-build-woodworking-projects-for-beginners/)
 - [Woodworking Beginner Projects](https://www.woodworkcenter.com/woodworking-beginner-projects/)
 - [Woodworking Beginner Tips](https://www.woodworkcenter.com/woodworking-beginner-tips/)
@@ -50,8 +52,6 @@ Here are some ideas to get you started:
 - [How Much Money Can I Make Selling Items Like Woodworking Projects?](https://www.woodworkcenter.com/how-much-money-can-i-make-selling-items-like-woodworking-projects/)
 - [Woodworking Art: How to Acquire the Right Tools](https://www.woodworkcenter.com/woodworking-art-how-to-acquire-the-right-tools/)
 - [Simple Project Using Scraps](https://www.woodworkcenter.com/simple-project-using-scraps/)
-- [Woodworking DIY Crafts – How To Build Simple Woodworking Projects Yourself](https://www.woodworkcenter.com/woodworking-diy-crafts-how-to-build-simple-woodworking-projects-yourself/)
-- [Beginner Woodworking Projects – Easy Woodworking Projects For Everyone](https://www.woodworkcenter.com/beginner-woodworking-projects-easy-woodworking-projects-for-everyone/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
