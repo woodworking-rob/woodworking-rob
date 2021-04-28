@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How Hard Can Woodworking Be?](https://www.woodworkcenter.com/how-hard-can-woodworking-be/)
 - [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/woodworking-gift-ideas.html)
 - [Most Profitable Woodworking Projects To Build And Sell](https://www.woodworkcenter.com/most-profitable-woodworking-projects-to-build-and-sell/)
 - [Woodworking Has Been Around For Thousands of Years and Will Continue to Remain](https://www.woodworkcenter.com/woodworking-has-been-around-for-thousands-of-years-and-will-continue-to-remain/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Easy Build Woodworking Projects For Beginners](https://www.woodworkcenter.com/easy-build-woodworking-projects-for-beginners/)
 - [Woodworking Beginner Projects](https://www.woodworkcenter.com/woodworking-beginner-projects/)
 - [Woodworking Beginner Tips](https://www.woodworkcenter.com/woodworking-beginner-tips/)
-- [DIY Side Table – How to Create an Easy Woodworking Project](https://www.woodworkcenter.com/diy-side-table-how-to-create-an-easy-woodworking-project/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
