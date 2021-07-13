@@ -50,8 +50,8 @@ Here are some ideas to get you started:
 - [Most Profitable Woodworking Projects To Build And Sell](https://www.woodworkcenter.com/most-profitable-woodworking-projects-to-build-and-sell/)
 - [Woodworking Has Been Around For Thousands of Years and Will Continue to Remain](https://www.woodworkcenter.com/woodworking-has-been-around-for-thousands-of-years-and-will-continue-to-remain/)
 - [Woodworking Ideas For Beginner Woodworkers](https://www.woodworkcenter.com/woodworking-ideas-for-beginner-woodworkers/)
-- [5 Types of Woodworking Gift Ideas](https://www.youtube.com/watch?v=nejUtmuqeVk)
 - [5 Types of Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/5-Types-of-Woodworking-Gift-Ideas.html)
+- [Easy Build Woodworking Projects For Beginners](https://www.woodworkcenter.com/easy-build-woodworking-projects-for-beginners/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
