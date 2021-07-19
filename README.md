@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Belt Sander Reviews Fine Woodworking](https://www.woodworkcenter.com/belt-sander-reviews-fine-woodworking/)
 - [Easy DIY Metal Lights – Glowing Table DIY Project](https://www.woodworkcenter.com/easy-diy-metal-lights-glowing-table-diy-project/)
 - [Most Profitable Woodworking Projects To Build And Sell](https://woodworking-bob.blogspot.com/2021/04/most-profitable-woodworking-projects-to.html)
 - [Creative Woodworking Ideas For Beginners](https://www.woodworkcenter.com/creative-woodworking-ideas-for-beginners/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Woodworking Has Been Around For Thousands of Years and Will Continue to Remain](https://www.woodworkcenter.com/woodworking-has-been-around-for-thousands-of-years-and-will-continue-to-remain/)
 - [Woodworking Ideas For Beginner Woodworkers](https://www.woodworkcenter.com/woodworking-ideas-for-beginner-woodworkers/)
 - [5 Types of Woodworking Gift Ideas](https://www.youtube.com/watch?v=nejUtmuqeVk)
-- [5 Types of Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/5-Types-of-Woodworking-Gift-Ideas.html)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
