@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
 - [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
 - [Belt Sander Reviews Fine Woodworking](https://www.woodworkcenter.com/belt-sander-reviews-fine-woodworking/)
 - [Easy DIY Metal Lights – Glowing Table DIY Project](https://www.woodworkcenter.com/easy-diy-metal-lights-glowing-table-diy-project/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/woodworking-gift-ideas.html)
 - [Most Profitable Woodworking Projects To Build And Sell](https://www.woodworkcenter.com/most-profitable-woodworking-projects-to-build-and-sell/)
 - [Woodworking Has Been Around For Thousands of Years and Will Continue to Remain](https://www.woodworkcenter.com/woodworking-has-been-around-for-thousands-of-years-and-will-continue-to-remain/)
-- [Woodworking Ideas For Beginner Woodworkers](https://www.woodworkcenter.com/woodworking-ideas-for-beginner-woodworkers/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
