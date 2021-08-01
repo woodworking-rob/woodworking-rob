@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Walnut Oil For Woodworking](https://www.woodworkcenter.com/walnut-oil-for-woodworking/)
 - [Moisture Content of Wood For Woodworking](https://www.woodworkcenter.com/moisture-content-of-wood-for-woodworking/)
 - [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
 - [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Creative Woodworking Ideas For Beginners](https://www.woodworkcenter.com/creative-woodworking-ideas-for-beginners/)
 - [How Hard Can Woodworking Be?](https://www.woodworkcenter.com/how-hard-can-woodworking-be/)
 - [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/woodworking-gift-ideas.html)
-- [Most Profitable Woodworking Projects To Build And Sell](https://www.woodworkcenter.com/most-profitable-woodworking-projects-to-build-and-sell/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
