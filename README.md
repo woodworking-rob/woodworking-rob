@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How To Dry Wood Fast For Woodworking](https://www.woodworkcenter.com/how-to-dry-wood-fast-for-woodworking/)
 - [Walnut Oil For Woodworking](https://www.woodworkcenter.com/walnut-oil-for-woodworking/)
 - [Moisture Content of Wood For Woodworking](https://www.woodworkcenter.com/moisture-content-of-wood-for-woodworking/)
 - [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Most Profitable Woodworking Projects To Build And Sell](https://woodworking-bob.blogspot.com/2021/04/most-profitable-woodworking-projects-to.html)
 - [Creative Woodworking Ideas For Beginners](https://www.woodworkcenter.com/creative-woodworking-ideas-for-beginners/)
 - [How Hard Can Woodworking Be?](https://www.woodworkcenter.com/how-hard-can-woodworking-be/)
-- [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/woodworking-gift-ideas.html)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
