@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How to Get Into Woodworking](https://www.woodworkcenter.com/how-to-get-into-woodworking/)
 - [How to Get Started in Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-woodworking/)
 - [Make Money From Woodworking In Your Own Garage](https://www.woodworkcenter.com/make-money-from-woodworking-in-your-garage/)
 - [How To Dry Wood Fast For Woodworking](https://www.woodworkcenter.com/how-to-dry-wood-fast-for-woodworking/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
 - [Belt Sander Reviews Fine Woodworking](https://www.woodworkcenter.com/belt-sander-reviews-fine-woodworking/)
 - [Easy DIY Metal Lights – Glowing Table DIY Project](https://www.woodworkcenter.com/easy-diy-metal-lights-glowing-table-diy-project/)
-- [Most Profitable Woodworking Projects To Build And Sell](https://woodworking-bob.blogspot.com/2021/04/most-profitable-woodworking-projects-to.html)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
