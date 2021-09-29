@@ -42,12 +42,16 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Most Profitable Woodworking Projects To Build And Sell](https://woodworking-bob.blogspot.com/2021/04/most-profitable-woodworking-projects-to.html)
-- [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/woodworking-gift-ideas.html)
-- [5 Types of Woodworking Gift Ideas](https://www.youtube.com/watch?v=nejUtmuqeVk)
-- [5 Types of Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2021/04/5-Types-of-Woodworking-Gift-Ideas.html)
-- [Woodworking Gift Ideas](https://www.youtube.com/watch?v=2yOkUEnHbnw)
-- [Woodworking Gift Ideas](https://woodworking-bob.blogspot.com/2020/12/woodworking-gift-ideas_12.html)
+- [How To Start Woodworking](https://www.woodworkcenter.com/how-to-start-woodworking/)
+- [How to Get Into Woodworking](https://www.woodworkcenter.com/how-to-get-into-woodworking/)
+- [How to Get Started in Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-woodworking/)
+- [Make Money From Woodworking In Your Own Garage](https://www.woodworkcenter.com/make-money-from-woodworking-in-your-garage/)
+- [How To Dry Wood Fast For Woodworking](https://www.woodworkcenter.com/how-to-dry-wood-fast-for-woodworking/)
+- [Walnut Oil For Woodworking](https://www.woodworkcenter.com/walnut-oil-for-woodworking/)
+- [Moisture Content of Wood For Woodworking](https://www.woodworkcenter.com/moisture-content-of-wood-for-woodworking/)
+- [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
+- [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
+- [Belt Sander Reviews Fine Woodworking](https://www.woodworkcenter.com/belt-sander-reviews-fine-woodworking/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
