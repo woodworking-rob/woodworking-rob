@@ -42,6 +42,7 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [How to Build a Woodworking Bench](https://www.woodworkcenter.com/how-to-build-a-woodworking-bench/)
 - [How To Start Woodworking](https://www.woodworkcenter.com/how-to-start-woodworking/)
 - [How to Get Into Woodworking](https://www.woodworkcenter.com/how-to-get-into-woodworking/)
 - [How to Get Started in Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-woodworking/)
@@ -51,7 +52,6 @@ Here are some ideas to get you started:
 - [Moisture Content of Wood For Woodworking](https://www.woodworkcenter.com/moisture-content-of-wood-for-woodworking/)
 - [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
 - [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
-- [Belt Sander Reviews Fine Woodworking](https://www.woodworkcenter.com/belt-sander-reviews-fine-woodworking/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
