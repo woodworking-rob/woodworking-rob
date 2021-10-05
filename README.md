@@ -42,16 +42,16 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [How to Build a Woodworking Bench](https://www.woodworkcenter.com/how-to-build-a-woodworking-bench/)
+- [Woodworking Ideas For Beginner Woodworkers](https://www.woodworkcenter.com/woodworking-ideas-for-beginner-woodworkers/)
+- [Woodworking Projects For The Beginner: DIY Bench Plans](https://www.woodworkcenter.com/woodworking-projects-for-the-beginner-diy-bench-plans/)
+- [DIY Woodworking Projects For The Creative Beginner](https://www.woodworkcenter.com/diy-woodworking-projects-for-the-creative-beginner/)
+- [How to Build a Woodworking Bench Easily](https://www.woodworkcenter.com/how-to-build-a-woodworking-bench/)
+- [Simple Gifts For Dad – DIY Wood Projects](https://www.woodworkcenter.com/simple-gifts-for-dad-diy-wood-projects/)
 - [How To Start Woodworking](https://www.woodworkcenter.com/how-to-start-woodworking/)
 - [How to Get Into Woodworking](https://www.woodworkcenter.com/how-to-get-into-woodworking/)
 - [How to Get Started in Woodworking](https://www.woodworkcenter.com/how-to-get-started-in-woodworking/)
 - [Make Money From Woodworking In Your Own Garage](https://www.woodworkcenter.com/make-money-from-woodworking-in-your-garage/)
 - [How To Dry Wood Fast For Woodworking](https://www.woodworkcenter.com/how-to-dry-wood-fast-for-woodworking/)
-- [Walnut Oil For Woodworking](https://www.woodworkcenter.com/walnut-oil-for-woodworking/)
-- [Moisture Content of Wood For Woodworking](https://www.woodworkcenter.com/moisture-content-of-wood-for-woodworking/)
-- [Martial Arts Belt Display Rack Woodworking Plans](https://www.woodworkcenter.com/martial-arts-belt-display-rack-woodworking-plans/)
-- [Polyethylene Glycol Woodworking](https://www.woodworkcenter.com/polyethylene-glycol-woodworking/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
