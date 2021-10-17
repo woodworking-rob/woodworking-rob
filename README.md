@@ -42,6 +42,8 @@ Here are some ideas to get you started:
 ### 📕 Latest Blog Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Most Profitable Woodworking Projects To Build And Sell](https://www.woodworkcenter.com/most-profitable-woodworking-projects-to-build-and-sell/)
+- [Woodworking Gift Ideas](https://www.woodworkcenter.com/woodworking-gift-ideas/)
 - [How to Get Into Woodworking – Useful Tips](https://www.woodworkcenter.com/how-to-get-into-woodworking/)
 - [How to Build a Woodworking Bench Easily](https://www.woodworkcenter.com/how-to-build-a-woodworking-bench/)
 - [Woodworking Ideas For Beginner Woodworkers](https://www.woodworkcenter.com/woodworking-ideas-for-beginner-woodworkers/)
@@ -50,8 +52,6 @@ Here are some ideas to get you started:
 - [Making Shelves And Larger Projects For Woodworking](https://www.woodworkcenter.com/making-shelves-and-larger-projects-for-woodworking/)
 - [Creating Fun and Easy DIY Woodworking Projects for Beginners](https://www.woodworkcenter.com/creating-fun-and-easy-diy-woodworking-projects-for-beginners/)
 - [Woodworking Information That You Cannot Work Without](https://www.woodworkcenter.com/woodworking-information-that-you-cannot-work-without/)
-- [Ten Advanced Ways To Learn Woodworking](https://www.woodworkcenter.com/ten-advanced-ways-to-learn-woodworking/)
-- [Getting Started With Woodworking](https://www.woodworkcenter.com/getting-started-with-woodworking/)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.woodworkcenter.com)
